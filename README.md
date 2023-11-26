@@ -1,0 +1,2 @@
+# Andreutz
+Informatica și Tic 
